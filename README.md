@@ -1,3 +1,3 @@
-### Hi there, i'm João Gabriel✌️https://github.com/JoaoGabrielMilare/JoaoGabrielMilare/blob/main/README.md
+### Hi there, i'm João Gabriel✌️
 - 🔭 I’m currently Estudying on Unicesumar
 - 🌱 I’m currently studying Software Engineer 🖥️
